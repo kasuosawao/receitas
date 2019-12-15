@@ -1,7 +1,7 @@
 # Receitas
 Minhas receitas favoritas
 
-![sakura.png]
+![mozão](sakura.png)
 
 # Algumas que mais gosto
  - Receita 1
