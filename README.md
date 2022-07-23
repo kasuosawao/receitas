@@ -1,5 +1,5 @@
 # Receitas
-''Minhas receitas favoritas
+**Minhas receitas favoritas**
 
 ![mozão](sakura.jpg)
 
