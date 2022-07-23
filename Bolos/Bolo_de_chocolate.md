@@ -16,7 +16,7 @@
 
 1. Adicionar o fermento e misturar com uma espátula delicadamente.
 
-1. untar uma forma, despejar a massa.
+1. Untar uma forma, despejar a massa.
 
 1. Assar no forno preaquecido (180 ºC) por cerca de 30 a 40 minutos. 
 
