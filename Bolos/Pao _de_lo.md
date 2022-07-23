@@ -19,5 +19,4 @@
 - **Método coupé:** Ato de mexer sempre de baixo para cima de forma delicada, para não tirar a aeração.
 - ***Fouet:*** batedor de ferro
 
-
 **OBS:** Essa massa não leva fermento. Os ovos agem como fermento natural e faz com que seu bolo cresça bastante e fique fofinho.
